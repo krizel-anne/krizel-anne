@@ -17,7 +17,7 @@
 - ✨ Ask me about design, tech, or anything fun!
 - 📲 Find me on Instagram: [ms.krizeel](https://www.instagram.com/ms.krizeel)
 - 💼 Check out my portfolio: [Coming Soon]
-- 📨 Reach me via email: [Your Email Here]
+- 📨 Reach me via email: krizelannegone08@gmail.com
 - 😴 Fun fact: Always in a design flow… or sleeping. 
 
 ---
